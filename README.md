@@ -19,8 +19,5 @@
 
 
 
-![h](https://n.uguu.se/tyeVCfoU.gif)
 
-
-
-🪦 `` main @ account is [🍃](https://github.com/elysianrealmego) & [atabook](https://elysianrealmego.atabook.org/)
+![h](https://n.uguu.se/tyeVCfoU.gif)🪦 `` main @ account is [🍃](https://github.com/elysianrealmego) & [atabook](https://elysianrealmego.atabook.org/)
