@@ -9,11 +9,9 @@
 ![h](https://h.uguu.se/LeSiuCgk.gif)
 
 ![h](https://o.uguu.se/ZPLeAOas.gif)☆ pompom/blaze,,  he 🌿 they.
-![h](https://o.uguu.se/zcLuUaMt.gif)
 
 
-
-♡ sol's #1 ~~truther~~ lover... trust in oc x canon aka solblaze... [🦚🗝]
+![h](https://o.uguu.se/zcLuUaMt.gif)♡ sol's #1 ~~truther~~ lover... trust in oc x canon aka solblaze... [🦚🗝]
 
 
 ![h](https://n.uguu.se/tbCfbiOc.gif)
