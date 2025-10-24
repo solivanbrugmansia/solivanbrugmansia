@@ -14,9 +14,6 @@
 ![h](https://o.uguu.se/zcLuUaMt.gif)♡ sol's #1 ~~truther~~ lover... trust in oc x canon aka solblaze... [🦚🗝]
 
 
-![h](https://n.uguu.se/tbCfbiOc.gif)
-
-
 
 🌱,, omnisexual/lesbian/nonbinary/lesbian aligned,, check [prns.pg](https://en.pronouns.page/@m1sspinkelf) 4 more..
 
