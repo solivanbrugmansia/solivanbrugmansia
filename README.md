@@ -8,11 +8,7 @@
 ## “𝒘𝒆 𝒘𝒊𝒍𝒍 𝒂𝒍𝒘𝒂𝒚𝒔 𝒃𝒆 𝒕𝒐𝒈𝒆𝒕𝒉𝒆𝒓 𝒓𝒊𝒈𝒉𝒕, 𝒎𝒚 𝒑𝒖𝒎𝒑𝒌𝒊𝒏?”
 ![h](https://h.uguu.se/LeSiuCgk.gif)
 
-![h](https://o.uguu.se/ZPLeAOas.gif)
-
-
-
-☆ pompom/blaze,,  he 🌿 they.
+![h](https://o.uguu.se/ZPLeAOas.gif)☆ pompom/blaze,,  he 🌿 they.
 ![h](https://o.uguu.se/zcLuUaMt.gif)
 
 
