@@ -8,7 +8,11 @@
 ## “𝒘𝒆 𝒘𝒊𝒍𝒍 𝒂𝒍𝒘𝒂𝒚𝒔 𝒃𝒆 𝒕𝒐𝒈𝒆𝒕𝒉𝒆𝒓 𝒓𝒊𝒈𝒉𝒕, 𝒎𝒚 𝒑𝒖𝒎𝒑𝒌𝒊𝒏?”
 ![h](https://h.uguu.se/LeSiuCgk.gif)
 
-![h](https://h.uguu.se/VOUWSJmP.gif)
+![h](https://o.uguu.se/ZPLeAOas.gif)
 ☆ pompom/blaze,,  he 🌿 they.
-![h](https://h.uguu.se/VOUWSJmP.gif)
-♡ 
+![h](https://o.uguu.se/zcLuUaMt.gif)
+♡ sol's #1 ~~truther~~ lover... trust in oc x canon aka solblaze... [🦚🗝]
+![h](https://n.uguu.se/tbCfbiOc.gif)
+🌱,, omnisexual/lesbian/nonbinary/lesbian aligned,, check [prns.pg](https://en.pronouns.page/@m1sspinkelf) 4 more..
+![h](https://n.uguu.se/tyeVCfoU.gif)
+🪦 `` main @ account is [🍃](https://github.com/elysianrealmego) & [atabook](https://elysianrealmego.atabook.org/)
