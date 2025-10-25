@@ -15,7 +15,7 @@
 
 
 
-🌱,, omnisexual/lesbian/nonbinary/lesbian aligned,, check [prns.pg](https://en.pronouns.page/@foretnoir) 4 more..
+🌱,, omnisexual/lesbian/nonbinary/lesbian aligned,, check [prns.pg](https://en.pronouns.page/@foretnoir_) 4 more..
 
 
 
