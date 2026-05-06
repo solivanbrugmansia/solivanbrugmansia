@@ -4,6 +4,6 @@
 
 
 
-[about](https://020147.straw.page)![h](https://files.catbox.moe/lfljt3.gif)![h](https://files.catbox.moe/wdz773.png)![h](https://files.catbox.moe/lfljt3.gif)
+[about](https://020147.straw.page)![h](https://files.catbox.moe/lfljt3.gif)![h](https://files.catbox.moe/wdz773.png)![h](https://files.catbox.moe/lfljt3.gif)[prns](https://en.pronouns.page/@020147)
 
 ![h](https://files.catbox.moe/5a0z57.png)
