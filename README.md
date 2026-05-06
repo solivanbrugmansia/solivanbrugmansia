@@ -6,4 +6,4 @@
 ![h](https://files.catbox.moe/5a0z57.png)
 
 
-![image](https://files.catbox.moe/4eq6y3.gif)
+[about](https://020147.straw.page)
